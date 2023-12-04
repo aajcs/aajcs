@@ -1,5 +1,4 @@
 ### Hola!!! 👋
-😁!☠️!💻
 
 Aqui alguna información sobre mi:
 
